@@ -8,5 +8,4 @@ I          .*★*.
 ★　　　　　  * 
 ★           .’
 ‘*.　　　  .
-    `  .  . 
-I Love you lll!
+I love jinyingying!
