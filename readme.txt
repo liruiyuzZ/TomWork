@@ -10,3 +10,5 @@ I          .*★*.
 ‘*.　　　  .
 I love jinyingying!
 Git,I love YOU.
+Git, I STUDY.
+
